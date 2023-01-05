@@ -9,4 +9,4 @@
 
 <h3>Method for block ads, pop-ups, spywares and trackers megaup.net. bypassing anti-adblock system</h3>
   
-                                                     Working and updated 2023-04-01
+                                               Working and updated 2023-04-01
