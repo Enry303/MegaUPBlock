@@ -8,4 +8,6 @@
 ![After](https://user-images.githubusercontent.com/121989483/210679786-6a8cab1e-8042-4bb5-918b-f9ee264b1096.jpg)
 
 <h2>Method for block ads, pop-ups, spywares and trackers megaup.net</h2> <br>
-bypassing anti-adblock system
+<h3> bypassing anti-adblock system<h3>
+  
+                                      Working and updated 2023-04-01 
